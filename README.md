@@ -19,7 +19,12 @@
 
 
 
-- 📫 How to reach me [tiaan.swart@sleeq.co.nz](mailto:tiaan.swart@sleeq.co.nz)- ⚡ **Mac enthusiast 🍎**. Outside work, I enjoy **travel, fitness and CrossFit**.
+- 📫 How to reach me [tiaan.swart@sleeq.co.nz](mailto:tiaan.swart@sleeq.co.nz)
+
+
+
+
+- ⚡ **Mac enthusiast 🍎**. Outside work, I enjoy **travel, fitness and CrossFit**.
 
 - 💚 **Men’s mental health matters.** Check in on your mates and make space for honest conversations.
 
